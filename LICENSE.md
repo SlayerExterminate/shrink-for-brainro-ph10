@@ -1,4 +1,4 @@
-
+shrink for brainrots advanced Scripts is the best shrink for brainrots Script, featuring auto-sell and one-hit kill. Safe and powerful for all your
 
 
 
